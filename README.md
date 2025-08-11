@@ -11,7 +11,7 @@
 
 - 💬 Ask me about **MERN,Web Desiging**
 
-- 📫 How to reach me **shreyashkoli4141@gmail.com**
+- 📫 How to reach me **shreyashkoli2301@gmail.com**
 
 - ⚡ Fun fact **I think I am Funny**
 
